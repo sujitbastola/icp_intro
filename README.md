@@ -37,7 +37,7 @@ For me, being part of a Developers’ Community isn’t just about networking—
 
 ## How to Reach Me  
 📫 Email: [sujitbastola@gmail.com](mailto:sujitbastola@gmail.com)  
-💼 LinkedIn: [sujitbastola](https://linkedin.com/in/sujitbastola)  
+💼 LinkedIn: [SUJIT BASTOLA](https://linkedin.com/in/sujitbastola)  
 🌐 Portfolio: [Sujit Bastola](https://sujitbastola.com)
 
 ---
